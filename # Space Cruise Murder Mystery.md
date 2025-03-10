@@ -4,11 +4,11 @@
 
 - A mousy beaurucrat on their way to a new posting (Tavka Itovanov)
 - A rougish former soldier staking a mining claim (Emmit Raskido)
-- A retired diplomat visiting ir family (Arjun Santiago de Ascencion de Ramaya aka Arjay)
+- A diplomatic atache (read as spy) visiting ir family (Arjun Santiago de Ascencion de Ramaya aka Arjay) 
 - A Vassal of the heirarchy of domain kirido surveying one of their colony worlds (Mibu Tokogawslki)
 - A well-seasoned captain (viseli zhukarwa) facing a disciplinary hearing on their return for a dockside slight of an Imperial representative 
 - An ambitious First Officer with sights set on their future command (Moloto)
-- A Mysterious tourist with a secret
+- A Mysterious tourist with a secret (anastasia)
 - A well-loved chief steward on their final tour (sirja)
 https://translash.org/articles/translash-guide-to-trans-sex-t4t-and-trans-cis/
 
@@ -41,10 +41,8 @@ Mitsubesk includes Sano (planet) Moskva (station)
 	- The captain is delayed by an engine repair, and must apologize to the vassal who issues a threat
 	- Emmit takes Tavka to get food, and Arjay meets them, introduces Anastasia and informs them they are invited to the captains for dinner
 2.
-	- (em perspective) Emmit continues to enjoy a few more cocktails with Arjay and the erudite Anastasia, who's knowledge seems too specific.
-	- Tavka (tav perspective) wastes some time in their room, reading news reports about agronomy and crucially a rash of piracy, when they finally receive the formal invitation to dinner and has a mild panic about what to wear
-	- Sirja (sirj Perspective) begins preparations for the formal dinner, introducing us to both the captain of the guard, the head of ship security, and their own idiosyncrasies
-	- Tavka (Tav Perspective) arrives at dinner, the first to do so. Light conversation with the captain and first officer moloto, other guests arrive. Notably, nothing is served and an hour or more passes until the vassal arrives, making a sideways comment to the captain about "being kept waiting". Service begins, The Vassal is lively and catty, but particularly fond of Arjay, whom she refers to as "The little Raja's eyes" Arjay brings up Emmit's service as a distraction, captain points out moloto's service as well. It turns out that they served in the same campaign, which Emmit refers to as "a waste of lives" triggering an enraged outburst from Moloto
-	- (captain perspective) Emmit has taken this quite personally, and an argument ensues, leading to Moloto storming out of the dinner in a tremendous breach of protocol. The captain desperately tries to reign things in, but the Vassal is amused and insists dinner continue. While Anastasia insists the campaign was necessary for some factor of realpolitik, Tavka joins in to identify the resources expended and anastasia corrects him, potentially revealing their identity. As dinner concludes, Arjay invites the vassal to walk in the arboretum
+	- Sirja (Captain Perspective) begins preparations for the formal dinner, introducing us to both the captain of the guard, the head of ship security, and their own idiosyncrasies
+	- Tavka (tav perspective) wastes some time in their room, reading news reports about agronomy and crucially a rash of piracy, when they finally receive the formal invitation to dinner and has a mild panic about what to wear  Tavka arrives at dinner, the first to do so. Light conversation with the captain and first officer moloto, other guests arrive. Notably, nothing is served and an hour or more passes until the vassal arrives, making a sideways comment to the captain about "being kept waiting". Service begins, The Vassal is lively and catty, but particularly fond of Arjay, whom she refers to as "The little Raja's eyes" Arjay brings up Emmit's service as a distraction, captain points out moloto's service as well. It turns out that they served in the same campaign, which Emmit refers to as "a waste of lives" triggering an enraged outburst from Moloto
+	- Emmit has taken this quite personally, and an argument ensues, leading to Moloto storming out of the dinner in a tremendous breach of protocol. The captain desperately tries to reign things in, but the Vassal is amused and insists dinner continue. While Anastasia insists the campaign was necessary for some factor of realpolitik, Tavka joins in to identify the resources expended and anastasia corrects him, potentially revealing their identity. As dinner concludes, Arjay invites the vassal to walk in the arboretum
 3. 
 	- (Em perspective) The next day, emmit is enjoying some sun and sand on the Mediterranean arboretum beach when they are met by a former lover and comrade, who reveals they are now in private contracting but cannot share where and for whom. Emmit enjoys a moment of erotic reverie which is rudely interrupted by ship security 
