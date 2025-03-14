@@ -10,12 +10,29 @@
 - An ambitious First Officer with sights set on their future command (Moloto)
 - A Mysterious tourist with a secret (anastasia)
 - A well-loved chief steward on their final tour (sirja)
+- Imperator Praetorius, the Vassal's chief bodyguard
+- Security Chief Ibanez (he/him), ethnically gujranya
+- A former comrade of Emmit, now working private security
 https://translash.org/articles/translash-guide-to-trans-sex-t4t-and-trans-cis/
 
 ## The mystery outline:
 
-The cruise will take two weeks. One week to the edge of the system gravity well where the ship will shift to the edge of the destination system, then one week to the destination planet. After the first night, The Vassal is found dead in the arboretum, head cracked on a stone apparently having tripped. The cameras show the accident in full. After another two days, the chief steward is found dead in the zero gravity onsen. No cameras are in the onsen, and the cameras in the hall show no other people entering. The steward was carrying a specific drink, but no orders are found in the system. The only people logged into the system at the time are the captain, and two of the staff leaders. The cargo and 1200 passengers require the journey continue, but tensions escalate and the first officer's investigation seems to point to the captain. The shift happens, but once everyone wakes back up the diplomat is now dead in ir cradle. After investigating, the bureaucrat and soldier come to a conclusion when the soldier notices the same drink is ordered by the mysterious tourist, and the bureaucrat discovers the first officer has the captain's clearance codes. The Mysterious tourist is in fact a Daimyo, below a vassal, but with several critical holdings on the edge of imperial space. The first officer has arranged a pirate raid to spirit the daimyo away to a rival empire and secure his own position as captain after the captain's tragic death at the hands of the pirates, which of course will now have to include the destruction of the entire ship, if the bureaucrat and soldier can't stop it from happening.
-
+The cruise will take two weeks. One week to the edge of the system gravity well where the ship will shift to the edge of the destination system, then one week to the destination planet. 
+- After the first night, The Vassal is found dead in the arboretum, head cracked on a stone apparently having tripped. The cameras show the accident in full, Arjay is the last known person with the Vassal
+- The Imperator blames Arjay because ir is foreign, and chafes at Ibanez being the lead investigator. Without any additional leads and under pressure, Arjay is put in the ships brig.
+- Ibanez interviews all the other dinner guests and establishes alibis, including for Arjay, but not for the Captain, leading to a release of Arjay. Ibanez discovers the security footage has been tampered with.
+- Emmit discovers Arjay dying in the zero gravity steam room just a day after he was released. Arjay imparts a cryptic [drink name]. Again, there is tampered security footage, which again could only (at least to Ibanez) be the command staff
+- Ibanez talks to Sirja, who relays the orders made in the intermediate time up to Arjay's death included the drink name, but the ID is missing
+- Tavka is in the library with Anastasia and notices that they ordered the same drink. They tell emmit, and together they attempt to tell Ibanez but the first officer intercepts.
+- The Shift happens
+- Sirja is found dead in their cradle, the captain is devastated. The first officer uses this as an opportunity to sideline Ibanez on the grounds of a failed investigation.
+- The engine malfuctions after arriving to Mitsubesk, forcing a new orbital path that takes them close to an outer planet
+- "Pirates" arrive and storm the ship (not depicted, Moloto uses his new security powers to confine the praetorians and misdirect the security team)
+- The captain manages to sabotage the drive system and lockout control and sends Ibanez to try and rally the defense
+- The private security team activates and joins the "pirates", fighting both the Praetorians and the ship security
+- It all comes down to a final stand in the command center, as first officer moloto and the Daimyo AKA Anastasia try to get the captain to release the command lockout. They reveal their plan was to simply steal the ship, but with the drive system damaged, they will destroy the ship instead and wait for a [insert other empire] ship to pick them up
+- Emmit and Tavka manage to subdue the pair and concludes the story
+ 
 ## The Ship
 
 The CS Sakuranov is one of the Hokkido Line's newest Lotus-Class interstellar liners. Fit to accommodate 2000 passengers, with a crew and staff of 250, she measures 1 kilometer stem to stern. The main fusion rockets are separated from the habitation sections by a wide shield shaped like lotus petals towards the stern. The habitable sections are arranged forward of the shield in petals, surrounding the shift core. A lattice of supports and elevators connects the three strands, which contain a variety of amenities and cabins, arranged around open midways. The ship has all the luxuries a modern society requires, including onsen with zero gravity steam room, shrines, fine dining, exercise facilities, simulation booths, high-end shopping, work spaces, a quiet section, as well as state of the art bio-parks that replicate three different biomes (mediterranean, tropical, borreal)
