@@ -2,7 +2,7 @@
 
 ### A cast of peculiar characters collides on a two-week journey aboard a luxury space liner.
 
-- A mousy beaurucrat on their way to a new posting (Tavka Itovanov)
+- A mousy beaurucrat (logistics manager, agriculture) on their way to a new posting (Tavka Itovanov)
 - A rougish former soldier staking a mining claim (Emmit Raskido)
 - A diplomatic atache (read as spy) visiting ir family (Arjun Santiago de Ascencion de Ramaya aka Arjay) 
 - A Vassal of the heirarchy of domain kirido surveying one of their colony worlds (Mibu Tokogawslki)
@@ -19,8 +19,8 @@ https://translash.org/articles/translash-guide-to-trans-sex-t4t-and-trans-cis/
 
 The cruise will take two weeks. One week to the edge of the system gravity well where the ship will shift to the edge of the destination system, then one week to the destination planet. 
 - After the first night, The Vassal is found dead in the arboretum, head cracked on a stone apparently having tripped. The cameras show the accident in full, Arjay is the last known person with the Vassal
-- The Imperator blames Arjay because ir is foreign, and chafes at Ibanez being the lead investigator. Without any additional leads and under pressure, Arjay is put in the ships brig.
-- Ibanez interviews all the other dinner guests and establishes alibis, including for Arjay, but not for the Captain, leading to a release of Arjay. Ibanez discovers the security footage has been tampered with.
+- The Imperator blames Arjay because ir is foreign, and chafes at Ibanez being the lead investigator. Ibanez discovers the security footage has been tampered with. Without any additional leads and under pressure, Arjay is put in the ships brig.
+- Ibanez interviews all the other dinner guests and establishes alibis, including for Arjay, but not for the Captain, leading to a release of Arjay. 
 - Emmit discovers Arjay dying in the zero gravity steam room just a day after he was released. Arjay imparts a cryptic [drink name]. Again, there is tampered security footage, which again could only (at least to Ibanez) be the command staff
 - Ibanez talks to Sirja, who relays the orders made in the intermediate time up to Arjay's death included the drink name, but the ID is missing
 - Tavka is in the library with Anastasia and notices that they ordered the same drink. They tell emmit, and together they attempt to tell Ibanez but the first officer intercepts.
