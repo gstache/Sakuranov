@@ -21,9 +21,10 @@ The cruise will take two weeks. One week to the edge of the system gravity well 
 - After the first night, The Vassal is found dead in the arboretum, head cracked on a stone apparently having tripped. The cameras show the accident in full, Arjay is the last known person with the Vassal
 - The Imperator blames Arjay because ir is foreign, and chafes at Ibanez being the lead investigator. Ibanez discovers the security footage has been tampered with. Without any additional leads and under pressure, Arjay is put in the ships brig.
 - Ibanez interviews all the other dinner guests and establishes alibis, including for Arjay, but not for the Captain, leading to a release of Arjay. 
+- Tavka is in the library with Anastasia and notices that they ordered the [drink name]
 - Emmit discovers Arjay dying in the zero gravity steam room just a day after he was released. Arjay imparts a cryptic [drink name]. Again, there is tampered security footage, which again could only (at least to Ibanez) be the command staff
 - Ibanez talks to Sirja, who relays the orders made in the intermediate time up to Arjay's death included the drink name, but the ID is missing
-- Tavka is in the library with Anastasia and notices that they ordered the same drink. They tell emmit, and together they attempt to tell Ibanez but the first officer intercepts.
+- Emmit and Tavka receive a dead man switch message from Arjay telling them who Anastasia really is and ir's suspicion that someone inside the ship is helping them do *something*, and together Emmit and Tavka attempt to tell Ibanez but the first officer intercepts.
 - The Shift happens
 - Sirja is found dead in their cradle, the captain is devastated. The first officer uses this as an opportunity to sideline Ibanez on the grounds of a failed investigation.
 - The engine malfuctions after arriving to Mitsubesk, forcing a new orbital path that takes them close to an outer planet
