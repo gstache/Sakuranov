@@ -31,7 +31,7 @@ The cruise will take two weeks. One week to the edge of the system gravity well 
 - "Pirates" arrive and storm the ship (not depicted, Moloto uses his new security powers to confine the praetorians and misdirect the security team)
 - The captain manages to sabotage the drive system and lockout control and sends Ibanez to try and rally the defense
 - The private security team activates and joins the "pirates", fighting both the Praetorians and the ship security
-- It all comes down to a final stand in the command center, as first officer moloto and the Daimyo AKA Anastasia try to get the captain to release the command lockout. They reveal their plan was to simply steal the ship, but with the drive system damaged, they will destroy the ship instead and wait for a [insert other empire] ship to pick them up
+- It all comes down to a final stand in the command center, as first officer moloto and the Daimyo AKA Anastasia try to get the captain to release the command lockout. They reveal their plan was to simply steal the ship, but with the drive system damaged, they will destroy the ship instead and wait for a Anzhalt Combine ship to pick them up
 - Emmit and Tavka manage to subdue the pair and concludes the story
  
 ## The Ship
@@ -50,8 +50,9 @@ Harkondon includes Edo station
 Mitsubesk includes Sano (planet) Moskva (station) 
 
 ## Civilizations
-- the Eienvechni (informal name for the Eternal Hierarchy of Eien-Vechnyy)
-- Gujranya (ethnic group, part of the Greater Raj of His Majesty Emperor Phillip Alfonse Murty XIV)
+- the Eienvechni (informal name for the Eternal Hierarchy of Eien-Vechnyy, strong class structure, no gender)
+- Gujranya (ethnic group, part of the Greater Raj of His Majesty Emperor Phillip Alfonse Murty XIV, many gender, more mercantile class mobility)
+- Anzhalt Combine (Heavily industrial, strict gender roles, an oligarchy of xenophobic corporations)
 
 ## Chapter events:
 1. 

@@ -4,7 +4,7 @@
 
 ## Chapter One: An Ensemble Assembles
 
-"This necessarily implies that half their army is in trousers and the other is in frocks, do I have that correct?"
+"This necessarily implies that half the Anzhalt army is in trousers and the other is in frocks, do I have that correct?"
 
 "Not exactly: they don't permit the female-type - apologies - *women* - they don't allow them to join."
 
