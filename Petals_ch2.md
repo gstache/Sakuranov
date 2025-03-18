@@ -49,7 +49,7 @@ The elevator slowed and the doors slid open to the foyer of the executive dining
 
 "Welcome Honored guest Tavka. I am chief steward Sirja and will handle any needs you may have this evening. It is my singular pleasure to introduce you to our Honored captain, Viseli Zhukarwa" They extended a white gloved hand with a flourish toward the person standing at the head of the table. The captain gave Tavka a short, polite bow which Tavka returned deeply, marveling at the poise with which the captain had adjusted their golden command sash over their white tunic. They all stood for an awkward moment while Tavka took in the view of the stars through the arched windows over the table, finally remembering that they should probably say something,
 
-"It is an honor to meet you both" Tavka said with another deep bow. Not completely sure where to stand, they sidled over to the left of the table and stood patiently, hoping something or someone would take the spotlight. They didn't have to wait long, as the door opened to reveal Arjay. Ir wore loose black linen pants with gold piping, a crimson silk blouse and a black vest positively dripping with golden filigree. The same formal greeting was met with ir's characteristic loquacious rejoinder, and ir gave a most extravagant bow to the captain. After ir, the historian Anastasia in a conservative set of charcoal robes, followed by Emmit in, of all colors, periwinkle. Post greeting, they gave Tavka a little wave and pointed to their eye, and a electric tingle shot up Tavka's spine. They were playing a game, dressing in the same color as Tavka's eyes, and Tavka wondered if maybe they should play along. Perhaps, they thought, but this was too forward for them under normal circumstances and these conditions were far from normal. 
+"It is an honor to meet you both" Tavka said with another deep bow. Not completely sure where to stand, they sidled over to the left of the table and stood patiently, hoping something or someone would take the spotlight. They didn't have to wait long, as the door opened to reveal Arjay. Ir wore loose black linen pants with gold piping, a crimson silk blouse and a black vest positively dripping with golden filigree. The same formal greeting was met with ir's characteristic loquacious rejoinder, and ir gave a most extravagant bow to the captain. After ir, the historian Anastasia in a conservative set of charcoal robes, followed by Emmit in, of all colors, periwinkle. Post greeting, they gave Tavka a little wave and pointed to their eye, and a electric tingle shot up Tavka's spine. Were they playing a game, dressing in the same color as Tavka's eyes, and Tavka wondered if maybe they should play along. Perhaps, they thought, but this was too forward for them under normal circumstances and these conditions were far from normal. 
 
 Further contemplation was interrupted by the captain: "Thank you all for coming at the behest of our VIP guest" Tavka and Emmit locked eyes for a moment, and Tavka was sure the same thought was crossing their mind, hadn't their invitation come from Arjay? Was he the VIP? Most likely not. "I also thank you for your patience while we await their arrival". They whispered something to the steward Sirja, but Tavka's attention was grabbed by Anastasia's approach. They greeted them with a short courteous nod and Anastasia said "It is good to see you again, and I'm sorry for not introducing myself properly at our first meeting. Anastasia, pleased to meet your honored acquaintance." 
 
@@ -57,4 +57,26 @@ Their dark bob framed a well-defined set of cheekbones and eyes so black they re
 
 "Yes, although I'm still undertaking my doctorate. I have accepted a temporary position at the Hierarch's College on Sano while I complete my thesis."
 
-The Hierarch's College is a tremendously prestigious posting on any world (although some would say that The Forum or Sentaku University were more so), so this Anastasia must be a serious academic, Tavka thought. Somewhat desperate not to appear provincial, they inquired further, "What is your field?"
+The Hierarch's College is a tremendously prestigious posting on any world (although some would say that The Forum or Sentaku University were more so), so this Anastasia must be a serious academic, Tavka thought. In an effort not to appear provincial, they inquired further, "What is your field?"
+
+"My dissertation is focused on the third Anzhalt war"
+
+"That was barely five years ago, isn't that too recent for 'history'?"
+
+They laughed and gave their bob a little flip, "Not at all, there are so many primary sources right now, so many experiences to draw upon."
+
+Arjay sauntered over and put ir arm around Anastasia's shoulders and addressed Tavka, "This one is just full of information, aren't they?" With a flourish of ir blouse, ir released Anastasia and turned them to face ir. "I hope you'll regale our most eternal guest with your historiography of the Anzhalt flare up, they will be thrilled. As a bonus, I have also invited a veteran of that very conflict for you to have a tet a tet with"
+
+Anastasia smiled, but Tavka noticed the smile did not extend to their eyes. They also assumed Arjay was referring to Emmit, being the only person in the room that they knew to be a veteran, but how did ir know that they were in that war? Each small occurence on their own may be pure coincidence, but two coincidences together make a puzzle, and Tavka could not resist a puzzle. They asked Arjay, "You've invited some interesting people, and me. Why me?"
+
+"To be perfectly direct my dear grey Tavka, it would have been rude to invite just Emmit when you were sitting right there"
+
+That stung Tavka. Grey Tavka, once again. They withdrew to the edge of the room, watching others converse, stewing in a combination of anxiety and self-pity. Eventually, the conversations began to die out as the conspicuous lack of both food and drink weighed on the assembled persons. Like thunder over the plains of Tarkus a voice erupted from the doorway, the loudest human voice Tavka had ever heard,
+
+"MAKE WAY, MAKE WAY AND BOW BEFORE THE ETERNAL VASSAL." A person in flaming orange robes strode into the room and continued bellowing, "Their Eternal Honor Mibu Togowalski Arrives; the fusion core of thirteen suns are fueled by their passion, their sweat falls as rain to the people of the fertile and prosperous Korido Domain, their words are the sweetest succor to the most fallen vagrant, bow and seek mercy!"
+
+The assembled bowed, mostly from the sheer volume, as a small, elderly person entered the dining room. They wore a green three piece suit with a crimson cravat and a jaunty crimson pill box hat. With the slightest flick of their wrist, they dismissed their herald, and summoned the dinner guests to rise from their bows.
+
+"See, being delayed is very, *very* annoying, is it not?" They asked the room. There were a few polite chuckles but the captain looked like they had bit into a lemon, "I will say, you all look very dashing. Now, let's get to the goods! Sirja, drinks!"
+
+
