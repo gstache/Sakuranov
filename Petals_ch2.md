@@ -79,4 +79,44 @@ The assembled bowed, mostly from the sheer volume, as a small, elderly person en
 
 "See, being delayed is very, *very* annoying, is it not?" They asked the room. There were a few polite chuckles but the captain looked like they had bit into a lemon, "I will say, you all look very dashing. Now, let's get to the goods! Sirja, drinks!"
 
+Sirja and their staff moved through the guests, delivering a constellation of exotic libations. Tavka received a yuzu and plum wine spritz, Emmit a whisky of some kind, and they noticed a glowing blue drink in Anastasia's hand. Tavka hadn't made any request, had no idea what "Yuzu" even was, but one tentative sip confirmed that this was their new favorite. Along with the fizz, they felt the warm discomfort of being known by the enigmatic Sirja. The Vassal then summoned all eyes with a single raised hand.
 
+"Before we take our seats, let us take a moment to glorify our Eternal Hierarch." They cleared their throat and began the Eien-Vecchny Liturgy. The Hierarch is the sun around which the body politic orbits, only through their beneficence do all Eienvechni live, everything held in its place, and a place for everything, et cetera. The other guests intoned along, except for Arjay. "...And may their blessed eyes yet see the glorious sun rise of the future evermore. By the heirach!" The enthusiastically thrust their drink skyward, spilled a little, and then downed it in one swift quaff. The performance was so distracting that Tavka didn't notice the first officer enter and stand next to the captain. They were nearly a head taller than the captain, but retained the presence of a smaller person. 
+
+The vassal took their seat and the guests followed in class order: Arjay first, the Captain second, and the rest third (although Tavka could have sworn that Anastasia flinched toward their chair with Arjay). Sirja and their staff brought a first course, then a second. Exotic fishes prepared as nigiri, carpaccio, tartare, a salad of fruits Tavka had never seen was met with the vassal's enthusiastic approval. Emmit had been correct: the food was excellent. After a particularly delightful cold noodle dish, the vassal addressed Arjay, "Now who have you invited for my amusement, little spy?"
+
+Arjay demurred "Most Eternal Mibu, I am but a humble attache, a functionary." The denial was not entirely convincing to Tavka, but what would a *grey* functionary know about the world of espionage. "To my left is Anastasia Osu, a historian of the most recent Anzhalt-Eienvechni war. To my right is Emmit Raskido, Master Sargent of Your Eternal Hierarch's service and not coincidentally a veteran of the same conflict. Finally, at the captain's left is Tavka Itovanov, but a humble apparatchik." 
+
+Emmit slowly turned their head towards Anastasia, an expression between curiosity and indignation lighting their brown eyes aflame. To Tavka's surprise, they found themselves speaking, "We studied the logistics of the Lanterran front as part of our Clerical Shuyuan on Hanstock." They felt the weight of the gazes but continued, "We often learn our greatest lessons through studying the mistakes of the past." They offered a small head bow and thought that would tie off their part of the conversation nicely. First officer Moloto undid that knot: "Mistakes? I find the idea offensive, that the Hierarch and by extension their Vassals could make something as pedestrian as a mistake." They looked toward the Vassal who simply shrugged "I wasn't the one in charge of that campaign, look not to me"
+
+Tavka began to panic, "Maybe mistake was the wrong word, but there are errors - no, sorry - choices that could have different results-" They were interrupted by Emmit, who now fixed their burning eyes on the first officer, "The entire campaign was a mistake" they said firmly.
+
+Silence fell in the dining room. Moloto gathered steam to respond but Anastasia was first to the station: "I am curious as to what in your experience led you to believe the entire campaign was a mistake?"
+
+"You've studied it, you know the body count. What makes you think it wasn't a mistake?"
+
+"I'm just asking for background, I'm always interested in what first person accounts have to add to the complete picture" 
+
+"The complete picture? I was a grunt, a mud eating bug under the boot of our *Honored* Daimyo-"
+
+Moloto interjected "Mind your tone when discussing your betters!"
+
+"My betters?" Emmit spat the words out, their full fury focused on the lanky first officer, "What do you know about my *betters*? Did you see your comrades dissolved by plasma, starve to death, lose their limbs and lives because of my *betters*?"
+
+"I was there too you ingrate! I was an officer, one of the *betters* you so decry and I know for a fact as though spoken by the Hierarch themsleves that it was foreign interlopers colluding with republican and anarchist elements that stabbed our glorious effort in the back!"
+
+"Glorious effort? Lanterra was a wasteland of no strategic importance! Daimyo Fujschev declared it valuable, we went, and *we* died by the thousands while officers like *you* lounged in the formal mess and you want to blame any but yourselves!"
+
+Moloto jumped to their feet, "That is *ENOUGH* Sargent! I will not stand for such slander" They gestured at the rest of the guests "And neither should you! I take my leave, good NIGHT" With that, they stormed out of the dining room.
+
+Once again, the only sound was the air recycling, until the Vassal chuckled. "Such loyalty, I'm envious. Still, I've always found the 'foreign interloper' nonsense a tad far-fetched. Fujschev's reach always exceeded their grasp-"
+
+"That's one way to phrase it" Emmit said into their drink
+
+"- but they are House Santoku's problem, not mine. I have the privilege of serving the Hierarch from comfortably within the Hierarchy. You, apparatchik, outline the failure of logistics."
+
+"I wouldn't dismiss the theory of interlopers and anarchists out of hand," Anastasia began, but was quickly shut up with a glare from Mibu. Tavka then laid out in detail how Fujschev's advance to take Lanterra put their troops a full three days ahead of their supply train, which the Anzhalt navy was able to intercept and delay at the system's edge. The Eienvechni soldiers had only been equipped with three day supplies, accounting for distance between them and the logistics train, but the fighting on the planet took more than a month. The Anzhalt never reinforced the planet, but were content to allow a phyrric Eienvechni victory. With pressure on a single gravitational approach point into the system, a handful of Anzhalt picket ships were able to stop the resupply or retreat of the Eienvechni. Food would not arrive until the armistice was signed, and the planet was ceded back to the Anzhalt. 
+
+"It lacks a certain depth but excellently laid out for someone who did not attend a university" Anastasia said cooly. Emmit looked as though they were ready to reach through Arjay and tear the academic's throat out, and Tavka might have seconded after such a dismissive comment. Arjay saw an opportunity to redirect and said "Well, this foreign interloper would love some desert"
+
+Mibu laughed, "Yes, the Eyes of the Raj must feast on sweets" and Arjay chuckled as dinner resumed its course minus Moloto. A final service of desert and then a cordial to round it off, following which a much more relaxed looking Captain invited them all to leave. As they approached the door, Arjay bowed before Mibu and asked "Would you care to join me in the Arboretum tomorrow? There is a wonderful grove of Pacific Redwood you must see". Tavka didn't hear the reply, they were too busy racing for the elevator and the sanctuary of their cabin. 

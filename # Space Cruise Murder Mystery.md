@@ -46,7 +46,7 @@ The CS Sakuranov is one of the Hokkido Line's newest Lotus-Class interstellar li
 ## Locations
 
 Departure system is Harkondon, arrival is Mitsubesk
-Harkondon includes Edo station
+Harkondon includes Edo station, Hanstok (Planet)
 Mitsubesk includes Sano (planet) Moskva (station) 
 
 ## Civilizations
