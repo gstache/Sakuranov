@@ -12,7 +12,7 @@
 - A well-loved chief steward on their final tour (sirja)
 - Imperator Praetorius, the Vassal's chief bodyguard
 - Security Chief Ibanez (he/him), ethnically gujranya
-- A former comrade of Emmit, now working private security
+- A former comrade of Emmit, now working private security (Troye Markich)
 https://translash.org/articles/translash-guide-to-trans-sex-t4t-and-trans-cis/
 
 ## The mystery outline:

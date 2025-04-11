@@ -20,3 +20,40 @@ They tossed down the arrestor pod, chalked their hands, and assumed the backstep
 They sat into their hips, tensed their legs, and leaped. For a moment they were fully flying thirty meters above the sand, fingers outstretched. Time stopped. Visions flashed before them. Sun filtering through brown hair, mahogany, amber and ocher. The high cut line of Emmit's bathing suit tracing their hips. Their tricep flexing as they gestured. The wink in a periwinkle dress. The golden light reflecting off of the shift core onto their chest, nipples stiff in the breeze. Time sped back up as Tavka's hands made contact with the outcrop. The contact was briefly secured, until it wasn't, and Tavka slipped. Fifteen meters they fell, stomach rising until the arrestor pod snapped into action and deployed the aero-gel pad to catch the falling apparatchik. Tavka deflated along with the gel.
 
 ---
+
+"Nice tits!"
+
+Who says that, and how can I smack the lips off their face, Emmit thought. Smacking quickly turned to plonking as they gripped their drink, spun round, and prepared to throw the glass as hard as they could at the offending moron.
+
+"Troye Markich you whores child!" Emmit shouted at the moron "How small is the galaxy that I have to see your ugly face on my vacation!"
+
+Troye grinned ear to ear. They where remarkably attractive for an ugly moron, with an aquiline nose, sharp cheekbones, and angular chin that combined for a Julian visage on top of a tall, olive-tone, muscular body. They pointed with a heavily scarred right hand at Emmit's chest and turned their hand palm up to reiterate their earlier superlative.
+
+"These? Grew them myself." Emmit said as they playfully cupped their nice tits. They weren't large, however they had taken over some of their muscular chest and Emmit was genuinely proud of the progress. Troye looked how Emmit remembered, but with a bit more wear and tear. They still had the hallmarks of the retroviral gene editing and hormone control that all infantry of the Hierarchy underwent, making them bigger, stronger, faster and in some cases able to breathe non-standard air. The suit shunts on gleamed on their sculpted shoulders and hips. Their forearms were as a bundle of steel cables wrapped in rich leather. Coal black chest hair formed a perfect chevron between their pectorals.
+
+Emmit let themselves remember those forearms wrapped around their waist, pinning them to the wall. Remembered taking turns penetrating each other, bodies slick with SPEAR gel, finding solace in each other's bodies while the world collapsed around them. That was a past Emmit, though. They no longer had the shunts or the perfect low body fat muscle, but they had the body that felt right, curvier, but still strong as an ox.
+
+"It's been what, four years since our last deployment? How's the service treating you, Sargent?" Emmit asked, bringing their focus back to now.
+
+"Lieutenant, but I just resigned last month"
+
+"Wait, you bought a commission and then resigned? How did you afford that move?" Emmit was flabberghasted: the cost of a commission could be half again the annual salary of an enlisted person.
+
+"I received a lucrative offer from the private sector, used the signing bonus to bump my retirement to 'Officer' and then signed out. Sometimes, life hands you golden opportunities. Like seeing an old friend in a new shape, which looks great by the way." Their hazel eyes ventured across Emmit's reclined body, approvingly.
+
+"Count me impressed. Who picked your lazy ass up?"
+
+"That is a need to know only" There was a time when nothing was need to know between them. They stood silently for a moment, in the awkward space that develops between two lovers that time has separated.
+
+"What about you?"
+
+"I've bought myself a little mining claim, I'm trying to get into the palladium hustle"
+
+"Sounds about right" Troye chuckled "I'm meeting some comrades for drinks tonight, you should join, they'd love to hear your side of the old war stories."
+
+"Where and when, *sir*"
+
+"Very funny: Bar Rovesnik, twenty-thirty, be their or be a coward"
+
+"Aye aye" Emmit mock saluted with their drink and watched Troye walk away toward the changing rooms and the midway surrounding the bio-dome.
+---
