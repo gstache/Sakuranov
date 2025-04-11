@@ -56,4 +56,25 @@ Emmit let themselves remember those forearms wrapped around their waist, pinning
 "Very funny: Bar Rovesnik, twenty-thirty, be their or be a coward"
 
 "Aye aye" Emmit mock saluted with their drink and watched Troye walk away toward the changing rooms and the midway surrounding the bio-dome.
+
 ---
+
+The bridge was filled with constant motion and the low murmur of technical chatter. Captain Zhukarwa sat in their chair on the command dais, surrounded by a half dozen bridge stations. The two helmsmen sat strapped into their flight chairs to the left of the captain, monitoring a half dozen screens with telemetry and other critical information. Navigation was overseen by a single officer as the huge orbital path display took up most of the recess. Operations to the captain's right was overseen by Moloto who stood next to a seated and strapped adjutant. Behind the captain were the three engineering recesses, propulsion, life support, and data systems. The captain surveyed their domain. Twenty years in The Fleet and ten with the Hokkido line had inured them to the crackling energy of ship's business, and they felt totally at peace in the bowels of their ship. At least the civilian bridges were larger than the claustrophobic command information centers of the destroyers they began their career commanding.
+
+"Honored captain" Moloto approached the dais with a slight bow. Zhukarwa turned toward them, gesturing for them to continue. "I have disturbing news. Vassal Mibu Tokogawlsi has been found dead in the temperate forest bio-dome"
+
+The captain sat perfectly still for a moment, then turned and looked at the navigation display. The line tracing the ship's path out of the system was barely one fifth full. They straightened their duty uniform jacket and checked their ponytail. Still perfect, time to act. turning back to Moloto, they started issuing their orders:
+
+"Officer Moloto, inform Ibanez that they are to secure that section of the bio-dome immediately. He has my express order to use all resources available to complete this task until I arrive. You will take the helm until gamma shift."
+
+"Should we issue a shelter in place order?"
+
+"No, coordinate with Sirja to minimize passenger disruptions and keep this quiet. Navigation, simulate our time to Edo Station after a two hour flip procedure"
+
+"Aye sir" The navigation display altered the line from its current gentle curve to the Lagrangian point into a wide arch back into the orbit of Edo station.
+
+"Sir, calculations indicate that we will need two days of deceleration burn at standard g, followed by a two week, 12 hour and 34 minute zero-g coast"
+
+"Sixteen days to return to our origin point, two weeks floating. We can't subject our passengers to that condition, too many are planetsiders. Helm, make no correction to course or speed. I'm going up the bio-dome, Moloto, you have the chair"
+
+Zhukarwa stood, Moloto saluted crisply, and Zhukarwa offered them the captain's seat. Moloto took it like a child finding a sweet, and began issuing orders to Sirja and Ibanez. Zhukarwa felt the edge of anxiety begin to creep past the rush of action, and stepped through the hatch, out of the bridge, and into a huge mess.
