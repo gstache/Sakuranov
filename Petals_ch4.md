@@ -13,4 +13,4 @@ Ibanez stooped to examine the dead vassal, gently moving their hair with a steri
 
 "Naturally I would prefer if someone more suitable handled this investigation-"
 
-"That's enough, Honored Imperator" The captain's voice boomed across the copse, "He is my security chief and he is the person most suitable to complete this investigation, regardless of his national origin."
+"That's enough, Honored Imperator" The captain's voice boomed across the copse, "He is my security chief and he is the person most suitable to complete this investigation, regardless of his national origin." They walked over to the Imperator and Ibanez and looked down at the body. Ibanez saw the frustration across every line of the captain's face, and did not envy the decisions they would have to make. "Fill me in"
