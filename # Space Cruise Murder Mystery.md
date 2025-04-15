@@ -5,7 +5,7 @@
 - A mousy beaurucrat (logistics manager, agriculture) on their way to a new posting (Tavka Itovanov)
 - A rougish former soldier staking a mining claim (Emmit Raskido)
 - A diplomatic atache (read as spy) visiting ir family (Arjun Santiago de Ascencion de Ramaya aka Arjay) 
-- A Vassal of the heirarchy of domain kirido surveying one of their colony worlds (Mibu Tokogawslki)
+- A Vassal of the heirarchy of domain kirido surveying one of their colony worlds (Mibu Tokogawlsi)
 - A well-seasoned captain (viseli zhukarwa) facing a disciplinary hearing on their return for a dockside slight of an Imperial representative 
 - An ambitious First Officer with sights set on their future command (Moloto)
 - A Mysterious tourist with a secret (anastasia)
@@ -44,10 +44,17 @@ The CS Sakuranov is one of the Hokkido Line's newest Lotus-Class interstellar li
 - Bar Jinbei (deck 6)
 
 ## Locations
+Korido Domain, served by house Tokogawlsi:
+	Departure system is Harkondon, arrival is Mitsubesk
+	Harkondon includes Edo station, Hanstok (Planet)
+	Mitsubesk includes Sano (planet) Moskva (station) 
 
-Departure system is Harkondon, arrival is Mitsubesk
-Harkondon includes Edo station, Hanstok (Planet)
-Mitsubesk includes Sano (planet) Moskva (station) 
+Blyvsonto Domain, served by house Santoku
+
+Demarcation Zone, result of the Eienvechni defeat in the Anzhalt / eienvechni war
+	Lanterra, strategic pivot point, battle zone, think the somme
+
+
 
 ## Civilizations
 - the Eienvechni (informal name for the Eternal Hierarchy of Eien-Vechnyy, strong class structure, no gender)
