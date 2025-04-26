@@ -51,3 +51,25 @@ The captain smartly adjusted their uniform and turned heel to return to the brid
 
 ---
 
+Tavka had never in their life ever been arrested. They had not so much as been tardy three times, two of which where excused, let alone received a formal rebuke in writing, the idea that they could ever be or have been arrested would be fanciful, farcical. Yet here they sat is a circular detention bay. A dozen cells formed a ring around a central command console, their doors facing inward spaced two meters from the outer edge of the console. They were alone in their cell, but others were imprisoned, namely, his erstwhile companions, Arjay and Emmit. Anastasia, the dinner guest and historian was likewise detained.
+
+Embarrassment flushed their ears. It was beyond all imagining, and yet it was no hallucination. They had just fallen from the top of the boulder, trapped in the deflating aero-gel from their crash pad, when four strong, red arms ripped them out of the gel. Without explanation, they were marched straight to ship's security through the crowded bio-dome and then the shopping midway. Eyes, widening at the red and green Praetorians of the Hierarch's Hand, schooled after them. The self loathing shame of it, knowing thousands of people saw you betray their state, nearly drowned Tavka. At the nadir, the deep black, there hissed a small geyser of rage. The geyser grew in intensity as they listened to the overlapping complaints, erupting finally, uncontrollably in one word:
+
+"*QUIET!*"
+
+This outburst from the slight and reserved apparatchik indeed silenced the other four. Silence for a few more seconds, then Emmit tentatively interjected,
+
+"I'm sure it's nothing to worry about"
+
+"Nothing to worry about?" Tavka replied tensely, "We were arrested by the Vassal's Praetorians under suspicion of their murder, in public!" They were getting breathless, "I'm sure you know all about getting arrested, Emmit" The rage was curdling into panic self pity, but they couldn't back down now, they had to save face.
+
+"That's an incredibly discourteous thing to say, Tavka" Emmit replied, looking genuinely hurt. Tavka wanted to apologize, but continued on stubbornly and tearfully,
+
+"And YOU -" they flung their arm out toward Arjay, "-YOU got me into this mess. If you hadn't felt such great pity for poor, grey, Tavka I wouldn't be here. I would be enjoying my trip, alone, how I intended. I guess I could have said 'no', but could I have truly?" The tears were truly coming now "I don't think I could! I don't think I could." They buried their face in their arms "I could not, This is my own doing."
+
+Arjay was unusually grave and replied stonily, "This is not your doing, obviously. The Vassal is dead, we are the last to have direct contact with them besides their staff. They believe one or more of us murdered the Vassal. Then there is the real problem." Ir cracked an ironic smirk, a touch of the Arjay sparkle returned, "The problem, compatriots, co-conspirators, is that we are still here, in these cells." The group all looked at the other's confinement as though a new truth could be found in it. "This means that they can't rule us out. This ship, it is a great spy apparatus. Every electronic communique can be intercepted, all traffic tracked, and crucially, there are cameras and sensors everywhere. Deep in the bowels of this beast, they can re-create in perfect detail a virtual construction of any part of the vessel at any time. The problem is that they can't see what happened, and such cannot discount any of us. This is a problem larger than the five of us in this room." 
+
+Ir looked directly into Tavka's eyes for a moment longer than was accidental, snatched irs gaze back onto the other members and continued, "So no, it is certainly something to worry about."
+
+
+---
