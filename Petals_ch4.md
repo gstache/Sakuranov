@@ -73,3 +73,25 @@ Ir looked directly into Tavka's eyes for a moment longer than was accidental, sn
 
 
 ---
+
+"What's the possibility that this is an error?" Moloto asked Ibanez. They, along with the Imperator, stood in the security recreation suite, wrap around visors on their heads projecting a perfect three dimensional recreation of the arboretum into their eyes. Under their feet, omni directional track floors simulated their movement through the projected space. They had viewed the recreation of the Vassals death at least a dozen times, and each time they saw the same irregularity. The Vassal appeared to be speaking to someone who was not there, then turned, and received a ghostly shove, tripping over the exposed root and falling face-first onto the rock that cracked their skull. Despite millennia of belief in the existence of ancestral spirits among the Eien and the monotheistic purgatory of the Vechni, modern science had ruled out the para natural.
+
+"That's unlikely, because of how targeted the erasure is" Ibanez replied. "Additionally, someone accessed the system in the interregnum between Mibu's death and our review, but that access code has been encrypted. Information Systems is working on decoding."
+
+"Then we can't use the ships security system to rule any suspect out" The Imperator interjected, appearing much leaner without their crimson armor.
+
+"Yes, and please refrain from contributing further" Ibanez admonished.
+
+"They are absolutely correct, however" Moloto contributed. They were always undermining, Ibanez thought. Of course the Imperator was correct, and Ibanez was about to say the same, but Moloto never missed an opportunity to direct credit away from their subordinates, especially if that subordinate was foreign. Possibly Ibanez was being to harsh, maybe he could attribute their behavior to pure ambition rather than something uglier.
+
+"Yes, they are" Ibanez said begrudgingly. "There's more to the picture than what the ships eyes can see, or not see in this case" He called up an engineering overlay. The perfectly imaged forest around them now glowed with the blue lines of sub-terranean deck plates, mycelium of green, yellow and purple conduits snaking in every direction, and crucially red outlined access hatches leading to service crawlways.
+
+"Pay special attention to access hatch 1-s-34-g" The hatch nearest to the clearing was highlighted. "This hatch was accessed two hours before the arrival of the Vassal. It's not a high level security hatch, so no credentials are required, however a service key signal is. We know the hatch was then opened three minutes before the Vassal's death. The hatches on the other side of the crawlway were not opened during this time. These facts indicate the killer is-"
+
+"An insider, possibly, or someone with a connection to the ship." Moloto interrupted. Ibanez tightened his fists and then relaxed them. Again, the underminer. "Or the killer has an accomplice. I-"
+
+"Intend to interview the detained suspects. Under *my* supervision."
+
+"Of course, Honored First Officer."
+
+---
