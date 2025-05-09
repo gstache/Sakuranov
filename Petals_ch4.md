@@ -95,3 +95,29 @@ Ir looked directly into Tavka's eyes for a moment longer than was accidental, sn
 "Of course, Honored First Officer."
 
 ---
+
+Emmit sat in the interrogation room across a small table from Ibanez. His Grey tunic nearly blended into the walls, except for the gold piping and single gold and rose shoulder knot. His brown hair was slicked back from his brown forehead and his brown mustache was carefully shaped and waxed, not a single hair out of place. Boots knee high matched spotless white gloves. He reminded Emmit of some of the more aristocratic officers they'd met in the service, but his pronouns marked him as decidedly not of the Hierarchy. They were not so put together. The iron fists of Vassal Mibu had seized them from the beach, half-nude. Only after vigorous negotiations and quite a scene did they allow them to put on their linen cover up, which now felt even more sheer than it looked.
+
+"Let us start at the beginning. How does a Sargent of the Hierarch's employ afford a ticket aboard the Hokkido Line's flagship?" He asked the question without making eye contact, peeling his white gloves off delicately and setting them on the table.
+
+Emmit wanted to peel the skin off of his hands for that question, so they settled with not answering. Which Ibanez seemed content with. He just sat and stared at them, almost daring them to keep silent. Eventually, even Emmit broke and answered.
+
+"I requested my pension in a lump sum." They said flatly.
+
+"And for what purpose?" He responded tersely, eyebrow ever so slightly raised.
+
+"To purchase a mining claim in the Mitsubesk system. I used the rest to pay for this ride"
+
+"That must have used up all of your pension.
+
+"Very much so."
+
+"So one could say you need more money."
+
+"One could say this."
+
+"Indeed." He leaned forward, "A decorated infantry soldier with two campaigns under their belt, in need of funds, would make a perfect target for a foreign agent. You were approached by such an agent before boarding this vessel, correct?"
+
+"I mean, yes but he was invi-"
+
+Ibanez cut them off with a flourish of his hand, "Yes is sufficient." Emmit could reach that hand and break it before he could back away. It would put them in real trouble but it would feel so satisfying.
