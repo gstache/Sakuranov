@@ -120,4 +120,22 @@ Emmit wanted to peel the skin off of his hands for that question, so they settle
 
 "I mean, yes but he was invi-"
 
-Ibanez cut them off with a flourish of his hand, "Yes is sufficient." Emmit could reach that hand and break it before he could back away. It would put them in real trouble but it would feel so satisfying.
+Ibanez cut them off with a flourish of his hand, "Yes is sufficient." Emmit could reach that hand and break it before he could back away. The satisfaction might be worth the trouble.
+
+"Did Arjun Santiago de Ascension de Ramaya, known to you as 'Arjay', offer your money in exchange for the murder of the Vassal Mibu of House Tokogawlsi?"
+
+"You are saying they were murdered?" The surprise was genuine in Emmit's voice. Ibanez drew back slightly, clearly having offered information sooner than he intended. "No, Ir didn't offer me money to murder the Vassal."
+
+"What were your whereabouts this morning?"
+
+Emmit was back to being annoyed: after all of the infuriating condescension from  a half-witted security guard masquerading as a detective, the one question that mattered was finally asked.
+
+"I had some coffee at the second class inclusive, and then went to the beach, where the Eternal Vassal's goon squad arrested me, half naked, in public."
+
+"Can anyone corroborate this?"
+
+"I had to check in to the inclusive cafeteria, and Troye Markich. We talked on the beach"
+
+Ibanez made a note of both of these, and with a unsupported gravitas said, "You may return to your cell: we'll speak again."
+
+---
