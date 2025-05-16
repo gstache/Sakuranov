@@ -139,3 +139,7 @@ Emmit was back to being annoyed: after all of the infuriating condescension from
 Ibanez made a note of both of these, and with a unsupported gravitas said, "You may return to your cell: we'll speak again."
 
 ---
+
+"Well it's not Doctor Hitsu yet, I still have to complete my thesis. Anastasia will do just fine, officer." They said with flirtatious deference. Ibanez would not be taken in by the suspect's coquettish air, he assured himself. He would be resolute, and critical, and focused, no matter how pleasant deference felt.
+
+"I will use Anastasia then. "
