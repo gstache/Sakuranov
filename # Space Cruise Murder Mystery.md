@@ -8,7 +8,7 @@
 - A Vassal of the heirarchy of domain kirido surveying one of their colony worlds (Mibu Tokogawlsi)
 - A well-seasoned captain (viseli zhukarwa) facing a disciplinary hearing on their return for a dockside slight of an Imperial representative 
 - An ambitious First Officer with sights set on their future command (Moloto)
-- A Mysterious tourist with a secret (anastasia)
+- A Mysterious tourist with a secret (Anastasia Osu aka Daimyo Kyr Fujschev, the recently vanished general-savant, only 25 years old)
 - A well-loved chief steward on their final tour (sirja)
 - Imperator Praetorius, the Vassal's chief bodyguard
 - Security Chief Ibanez (he/him), ethnically gujranya
@@ -74,4 +74,4 @@ Demarcation Zone, result of the Eienvechni defeat in the Anzhalt / eienvechni wa
 	- (Em perspective) The next day, emmit is enjoying some sun and sand on the Mediterranean arboretum beach when they are met by a former lover and comrade, who reveals they are now in private contracting but cannot share where and for whom. Emmit enjoys a moment of erotic reverie which is rudely interrupted by ship security. Tavka goes for a climb and falls for emmit a little more. The captain is told about the vassals death
 
 4. 
-	- Ibanez and the imperator are at the crimescene, and it looks like an accident. The imperator is racist, and shoves ibanez. The captain arrives, and the imperator says they've already arrested the guests.
+	- Ibanez and the imperator are at the crimescene, and it looks like an accident. The imperator is racist, and shoves ibanez. The captain arrives, and the imperator says they've already arrested the guests. The arrested people speculate, Tavka gets mad, Arjay points out that if they were still being held then something is wrong with the sensor simulation. In the simulation room, Ibanez, moloto and Imperator discuss how the simulation is wrong. Ibanez interviews Emmit, and is trying to play up his Eienvechni-ness. 
