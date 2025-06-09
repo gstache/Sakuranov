@@ -96,7 +96,7 @@ Ir looked directly into Tavka's eyes for a moment longer than was accidental, sn
 
 ---
 
-Emmit sat in the interrogation room across a small table from Ibanez. His Grey tunic nearly blended into the walls, except for the gold piping and single gold and rose shoulder knot. His brown hair was slicked back from his brown forehead and his brown mustache was carefully shaped and waxed, not a single hair out of place. Boots knee high matched spotless white gloves. He reminded Emmit of some of the more aristocratic officers they'd met in the service, but his pronouns marked him as decidedly not of the Hierarchy. They were not so put together. The iron fists of Vassal Mibu had seized them from the beach, half-nude. Only after vigorous negotiations and quite a scene did they allow them to put on their linen cover up, which now felt even more sheer than it looked.
+Emmit sat in the interrogation room across a small table from Ibanez. His Grey tunic nearly blended into the walls, except for the gold piping and single gold and rose shoulder knot. His brown hair was slicked back from his brown forehead and his brown mustache was carefully shaped and waxed, not a single hair out of place. Boots, knee-high, matched spotless white gloves. He reminded Emmit of some of the more aristocratic officers they'd met in the service, but his pronouns marked him as decidedly not of the Hierarchy. They were not so put together, as the iron fists of Vassal Mibu had seized them from the beach, half-nude. Only after vigorous negotiations and quite a scene did they allow them to put on their linen cover up, which now felt more transparent than sheer.
 
 "Let us start at the beginning. How does a Sargent of the Hierarch's employ afford a ticket aboard the Hokkido Line's flagship?" He asked the question without making eye contact, peeling his white gloves off delicately and setting them on the table.
 
@@ -136,10 +136,34 @@ Emmit was back to being annoyed: after all of the infuriating condescension from
 
 "I had to check in to the inclusive cafeteria, and Troye Markich. We talked on the beach"
 
-Ibanez made a note of both of these, and with a unsupported gravitas said, "You may return to your cell: we'll speak again."
+Ibanez made a note of both of these, and with unsupported gravitas said, "You may return to your cell: we'll speak again."
 
 ---
 
-"Well it's not Doctor Osu yet, I still have to complete my thesis. Anastasia will do just fine, officer." They said with flirtatious deference. Ibanez would not be taken in by the suspect's coquettish air, he assured himself. He would be resolute, and critical, and focused, no matter how pleasant deference felt.
+"Well it's not Doctor Osu yet, I still have to complete my thesis. Anastasia will do just fine, officer." They said with flirtatious deference. Ibanez would not be taken in by the suspect's transparent manipulation, he assured himself. He would be resolute, and critical, and focused, no matter how pleasant deference felt.
 
-"I will use Anastasia then. "
+"I will use Anastasia then. " He cleared his throat and cut to the quick, "Did you kill Vassal Mibu Tokogawlsi?"
+
+Anastasia's eyebrows shot up, and they drew back with a shocked gasp. A hand flew up to cover their mouth which hung agape until they leaned forward.
+
+"The Vassal is...dead?" The pause was dramatic but Ibanez felt it genuine. "I thought that must have been a mistake when they arrested me." 
+
+Their eyes fell to the floor and they shook their head slowly from side to side. With a deep sigh they drew their eyes back up to their interrogator and quietly asked, voice trembling, "You think I killed them?"
+
+Ibanez was taken aback by the hurt on their face, and softened his posture, reassuring them, "I am simply ruling out everyone who was with the Vassal last. Where were you today, from mid morning to mid afternoon?"
+
+They seemed to take some comfort in his response, but remained small in the chair across from him. With a tilt of their head and bashful smile, they replied "It's a guilty pleasure of mine, I was in the ship's Imperial Library all last night until this afternoon. I so enjoy the physical copies of Poetry from Hierarchs past, and got carried away as usual."
+
+Ibanez didn't immediately respond: he found a short pause elicited more details.
+
+"You can check the sign out records, the works I had couldn't be removed from the library, and I even ordered a few libations to keep my energy up."
+
+He would check those records and the service records from last night to corroborate. They could have slipped out and returned, so he would question the clerks and servers. However, he was fairly satisfied with this answer, and with no obvious connection to the Vassal he didn't find them a credible suspect. There remained one final question:
+
+"How do you know Arjun?"
+
+"I don't: he approached me while I was taking tea in the atrium."
+
+Another person collected by this Arjun. He could feel the outline of a conspiracy forming.
+
+---
