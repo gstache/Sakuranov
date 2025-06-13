@@ -21,12 +21,11 @@ The cruise will take two weeks. One week to the edge of the system gravity well 
 - After the first night, The Vassal is found dead in the arboretum, head cracked on a stone apparently having tripped. The cameras show the accident in full, Arjay is the last known person with the Vassal
 - The Imperator blames Arjay because ir is foreign, and chafes at Ibanez being the lead investigator. Ibanez discovers the security footage has been tampered with. Without any additional leads and under pressure, Arjay is put in the ships brig.
 - Ibanez interviews all the other dinner guests and establishes alibis, anastasia was in the library and ordered [drink name]. arjay uses diplomatic immunity to be released
-- Tavka is in the library with Anastasia and notices that they ordered the [drink name]
-- Emmit discovers Arjay dying in the zero gravity steam room just a day after he was released. Arjay imparts a cryptic [drink name]. Again, there is tampered security footage, which again could only (at least to Ibanez) be the command staff
-- Ibanez talks to Sirja, who relays the orders made in the intermediate time up to Arjay's death included the drink name, but the ID is missing
-- Emmit and Tavka receive a dead man switch message from Arjay telling them who Anastasia really is and ir's suspicion that someone inside the ship is helping them do *something*, and together Emmit and Tavka attempt to tell Ibanez but the first officer intercepts.
+- Emmit and tavka go to the steam room and discovers Arjay dying in the zero gravity steam room just a day after he was released. Arjay imparts a cryptic [drink name]. Again, there is tampered security footage, which again could only (at least to Ibanez) be the command staff. but the drink is too much of a coincidence, anastasia might be the killer
+- Ibanez talks to Sirja, who relays the orders made were confirmed. Sirja suggests a conspiracy, anastasia is working with another. Ibanez needs more than a drink, A has an alibi for the first, but sirja convinces them to Detain A again
+- Ibanez interviews A again, who has no alibi. Ibanez arrests them for the second murder, but sees no motive
 - The Shift happens
-- Sirja is found dead in their cradle, the captain is devastated. The first officer uses this as an opportunity to sideline Ibanez on the grounds of a failed investigation.
+- Sirja is found dead in their cradle, the captain is devastated. The first officer uses this as an opportunity to sideline Ibanez on the by revealing his coup de grace: proof that Ibanez is the one who altered the video. he is confined to quarters
 - The engine malfuctions after arriving to Mitsubesk, forcing a new orbital path that takes them close to an outer planet
 - "Pirates" arrive and storm the ship (not depicted, Moloto uses his new security powers to confine the praetorians and misdirect the security team)
 - The captain manages to sabotage the drive system and lockout control and sends Ibanez to try and rally the defense
@@ -62,16 +61,24 @@ Demarcation Zone, result of the Eienvechni defeat in the Anzhalt / eienvechni wa
 - Anzhalt Combine (Heavily industrial, strict gender roles, an oligarchy of xenophobic corporations)
 
 ## Chapter events:
-1. 
+1. Day 1
 	- Boarding delayed, Arjay, Emmit and Tavka become acquainted
 	- The captain is delayed by an engine repair, and must apologize to the vassal who issues a threat
 	- Emmit takes Tavka to get food, and Arjay meets them, introduces Anastasia and informs them they are invited to the captains for dinner
-2.
+2. Day 1
 	- Sirja (Captain Perspective) begins preparations for the formal dinner, introducing us to both the captain of the guard, the head of ship security, and their own idiosyncrasies
 	- Tavka (tav perspective) arrives at dinner, the first to do so. Light conversation with the captain and first officer moloto, other guests arrive. Notably, nothing is served and an hour or more passes until the vassal arrives, making a sideways comment to the captain about "being kept waiting". Service begins, The Vassal is lively and catty, but particularly fond of Arjay, whom she refers to as "The little Raja's eyes" Arjay brings up Emmit's service as a distraction, captain points out moloto's service as well. It turns out that they served in the same campaign, which Emmit refers to as "a waste of lives" triggering an enraged outburst from Moloto
 	- Emmit has taken this quite personally, and an argument ensues, leading to Moloto storming out of the dinner in a tremendous breach of protocol. The captain desperately tries to reign things in, but the Vassal is amused and insists dinner continue. While Anastasia insists the campaign was necessary for some factor of realpolitik, Tavka joins in to identify the resources expended and anastasia corrects him, potentially revealing their identity. As dinner concludes, Arjay invites the vassal to walk in the arboretum
-3. 
+3. Day 2
 	- (Em perspective) The next day, emmit is enjoying some sun and sand on the Mediterranean arboretum beach when they are met by a former lover and comrade, who reveals they are now in private contracting but cannot share where and for whom. Emmit enjoys a moment of erotic reverie which is rudely interrupted by ship security. Tavka goes for a climb and falls for emmit a little more. The captain is told about the vassals death
 
-4. 
-	- Ibanez and the imperator are at the crimescene, and it looks like an accident. The imperator is racist, and shoves ibanez. The captain arrives, and the imperator says they've already arrested the guests. The arrested people speculate, Tavka gets mad, Arjay points out that if they were still being held then something is wrong with the sensor simulation. In the simulation room, Ibanez, moloto and Imperator discuss how the simulation is wrong. Ibanez interviews Emmit, and is trying to play up his Eienvechni-ness. 
+4. Day 2
+	- Ibanez and the imperator are at the crimescene, and it looks like an accident. The imperator is racist, and shoves ibanez. The captain arrives, and the imperator says they've already arrested the guests. The arrested people speculate, Tavka gets mad, Arjay points out that if they were still being held then something is wrong with the sensor simulation. In the simulation room, Ibanez, moloto and Imperator discuss how the simulation is wrong. Ibanez interviews Emmit, and is trying to play up his Eienvechni-ness.
+5. Day 2
+ - Emmit goes to party with Troye. it gets hot and heavy, and they kiss on the dance floor. but Emmit has a crisis of identity between who they were as a soldier and who they are now as themselves. cries, leaves.
+ - Tavka goes to the beach to calm down. Anastasia show up and tries to put the mac down on them, but Tavka demurres. Anastasia invited them to a party in the tropical petal on night 4, the event is the Ecstasy of Ranya, a Gujranya holiday. they accept, and return to their cabin. their cabin has been ransacked, and their tablet stolen. losing their cool, they find the nearest security staff and berate them for answers. a drunk and emotional emmit comes around the corner and joins in the shouting, demanding to speak to Ibanez. they eventually rach them on comms, and they deny searching. Emmits cabin is untouched
+ - we see the captain and sirja together after an intimate moment, they talk feelings
+6. Day 3
+ - Tavka sleeps in, and sees emmit receive a room service delivery, looking like shit. Tavka offers to return the favor from boarding, and offers to show them their patented hangover cure, but divulges no details except "dress for exercise"
+ - Ibanez goes to speak with the data ops engineer on the bridge, who says they haven't been tasked to decrypt the id used. Ibanez is shocked and confronts Moloto, who blames ops and gaslights Ibanez
+
