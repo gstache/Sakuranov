@@ -167,3 +167,13 @@ He would check those records and the service records from last night to corrobor
 Another person collected by this Arjun. He could feel the outline of a conspiracy forming.
 
 ---
+
+Tavka sat folded into themselves, distantly aware of the security chief across from them through the fog of self loathing and shame. They were back in the small apparatchik's office on that dismal Hanstok winter day, receiving divorce papers with hands still wet from the rain and knowing, then as now, that their innate passivity was to blame. 
+
+"I'm security Chief Ibanez, and according to your papers, you are Tavka Itovanov" Tavka's sullen reverie stopped abruptly and they sat upright.
+
+"Yes, that's me"
+
+Ibanez looked at them the way one looks at a drunkard stumbling out of a bar in the morning. "That wasn't a question," He replied. It had seemed that way to Tavka, but they lacked the will to argue.
+
+Ibanez shifted in his chair and laid his white gloves on the table. "Unlike the other dinner guests, I don't need to ask you many background questions, your being here has been explained in triplicate and paid for by the state. Congratulations on the promotion, 
