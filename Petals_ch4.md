@@ -176,4 +176,44 @@ Tavka sat folded into themselves, distantly aware of the security chief across f
 
 Ibanez looked at them the way one looks at a drunkard stumbling out of a bar in the morning. "That wasn't a question," He replied. It had seemed that way to Tavka, but they lacked the will to argue.
 
-Ibanez shifted in his chair and laid his white gloves on the table. "Unlike the other dinner guests, I don't need to ask you many background questions, your being here has been explained in triplicate and paid for by the state. Congratulations on the promotion, 
+Ibanez shifted in his chair and laid his white gloves on the table. "Unlike the other dinner guests, I don't need to ask you many background questions, your being here has been explained in triplicate and paid for by the state. Congratulations on the promotion, may the spirit of assiduity assist in your efforts."
+
+The words joined the chorus of rumination at a dissonant forte, souring Tavka's insides and causing their gorge to rise. Was there so little to their life? 'Yes' was the unanimous, acidic, reply. While Tavka wallowed Ibanez continued his interrogation un-phased by their obvious emotional distress, "What I need you to tell me is where were you this morning until you were escorted into our care?"
+
+Tavka's incredulity at the flippant description of their arrest, the marks of which still chafed their wrists, raised itself above the babble in their mind. Indignation followed shortly after, coursing through their veins and tensing their muscles.
+
+"I was rock climbing, where your heavy-handed associates snatched me" they answered tersely. Ibanez's eyebrows raised but he did not otherwise react to Tavka's brusque response. He waited a moment and asked, "Can anyone vouch for your whereabouts?"
+
+"No, but-" Tavka began, as Ibanez attempted to cut them off, "No will suffice-" but Tavka was not finished and they raised their voice over the inspector who in turn raised his,
+
+"*I was saying* that it is absurd that a vessel of this caliber-"
+
+"I'm asking the questions Ito-"
+
+"- can't tell you where a guest was -"
+
+"We aren't talking about the ship!"
+
+"- WHERE A GUEST WAS. Absurd! Furthermore-"
+
+"You do not set the agenda-"
+
+"FURTHERMORE! I can vouch for the location of Emmit"
+
+"Impossible to do my job- could you repeat that?"
+
+"I can vouch for the location of Emmit?"
+
+"Yes, exactly. How can you vouch for the location of Emmit?"
+
+"I saw them speaking with a person on the beach at the same time as I was climbing."
+
+Ibanez leaned back in his chair, and relaxed the white-knuckle grip he had on his gloves. Tavka had clearly upset him, but for the moment they didn't care.
+
+"You could have concocted this cover story with them in the brig." He said flatly. Tavka couldn't suppress their eye-roll. "Then why place us all together after arresting us?" 
+
+Ibanez was silent for a moment too long, and Tavka realized that he didn't have an answer for why, so they helpfully provided options, "Either you are a half wit detective, plying their trade as a interstellar convenience guard" As Ibanez began to open his mouth Tavka sped up, "OR you didn't have us arrested, in which case you aren't in control of your own security." They had certainly overstepped protocol now, and the vein pulsing in Ibanez's forehead confirmed this.
+
+Cold as space and flat as the plains of Hanstok he replied "You may go." and they obliged.
+
+--- 
