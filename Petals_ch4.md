@@ -214,6 +214,14 @@ Ibanez leaned back in his chair, and relaxed the white-knuckle grip he had on hi
 
 Ibanez was silent for a moment too long, and Tavka realized that he didn't have an answer for why, so they helpfully provided options, "Either you are a half wit detective, plying their trade as a interstellar convenience guard" As Ibanez began to open his mouth Tavka sped up, "OR you didn't have us arrested, in which case you aren't in control of your own security." They had certainly overstepped protocol now, and the vein pulsing in Ibanez's forehead confirmed this.
 
-Cold as space and flat as the plains of Hanstok he replied "You may go." and they obliged.
+Cold as space and flat as the plains of Hanstok he replied "You may go," and they obliged.
 
 --- 
+
+Ibanez was wearing thin. The day had been long, and night promised to be longer still as he followed up on each alibi. He looked left at the small camera he knew was hidden in the wall, knowing as well that Moloto and the Imperator were watching him closely. Returning his thoughts to those guests, he was less than excited to interview their final suspect, Arjun. Not for any reason to do with Arjun specifically, but rather the additional scrutiny he, a loyal subject of the Hierarchy, would receive while interviewing ir due to their shared ethnicity. The Hierarchy was in a multi-decade period of peace with The Raj but it had been hard won after several trade wars, cold wars, arms races and one spectacularly inconclusive physical war. The Eienvechni xenophobia combined with the history and peer-state status of the Raj meant that even in this pax economicus, Gujranyi were viewed with hostility and suspicion by most.
+
+A burly security guard planted Arjay into ir seat across from Ibanez. He gave a officious two-fingered wave towards the door and the guard obliged. Arjun, or Arjay for the casual, could have come from Chati-Andaluse Films central casting. Medium height, casually athletic build, comforting walnut eyes set in a warm, tan face, accented with saffron shadow matching ir tunic upon which tight black curls rested. Ir was undeniably attractive, he had to admit.
+
+"My, aren't we a dashing pair" Arjay announced, gesturing to irself and Ibanez with their cuffed wrists.
+
+"That is true only insofar as there are two of us." Ibanez retorted
