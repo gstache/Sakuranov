@@ -224,4 +224,4 @@ A burly security guard planted Arjay into ir seat across from Ibanez. He gave a 
 
 "My, aren't we a dashing pair" Arjay announced, gesturing to irself and Ibanez with their cuffed wrists.
 
-"That is true only insofar as there are two of us." Ibanez retorted
+"That is true only insofar as there are two of us." Ibanez retorted. 
