@@ -214,7 +214,7 @@ Ibanez leaned back in his chair, and relaxed the white-knuckle grip he had on hi
 
 Ibanez was silent for a moment too long, and Tavka realized that he didn't have an answer for why, so they helpfully provided options, "Either you are a half wit detective, plying their trade as a interstellar convenience guard" As Ibanez began to open his mouth Tavka sped up, "OR you didn't have us arrested, in which case you aren't in control of your own security." They had certainly overstepped protocol now, and the vein pulsing in Ibanez's forehead confirmed this.
 
-Cold as space and flat as the plains of Hanstok he replied "You may go," and they obliged.
+Cold as space and flat as the seas of Hanstok he replied "You may go," and they obliged.
 
 --- 
 
@@ -224,4 +224,42 @@ A burly security guard planted Arjay into ir seat across from Ibanez. He gave a 
 
 "My, aren't we a dashing pair" Arjay announced, gesturing to irself and Ibanez with their cuffed wrists.
 
-"That is true only insofar as there are two of us." Ibanez retorted. 
+"That is true only insofar as there are two of us." Ibanez retorted, bitter as the an orange peel.
+
+"They've crafted you into a fine Eienvechni, brother, very proper." Ir leaned back into a more comfortable position as Ibanez tried to kill ir with his gaze. "No relation, of course." Ir waved at the hidden camera, and Ibanez felt his stomach drop. A diplomatic attache, who personal knows (or knew) a Vassal of the Hierarch, and is aware of the exact location of the hidden cameras; this could be a spy, an assassin, or worse, a nosy gujranya. Consequences swirled in his mind, each path leading to greater dangers. He waved them away: this person was the last person to see the Vassal alive, most likely to have killed them, and he was going to pin them for it.
+
+"I was not crafted, I was born to it. My parents were born to it, as well."
+
+"Yet you don't get included in the collective *them*. Here's to a fine man in a fine uniform!" Ir mock raised a glass and giggled mirthlessly. Steam built between Ibanez's ears, fueled by the flagrant disrespect of Arjay and the years of being 'him' when he would want to be with 'them'. It could not be, though. Time to crack the whip and focus.
+
+"You were the last person to see Mibu Tokogawlsi before their death. What were you meeting about?"
+
+"You know I can't break the confidence of a Loyal Vassal of the Eternal Hierarch, even in death."
+
+"When did you leave the arboretum?"
+
+"I couldn't possibly tell you, I don't keep a watch."
+
+"Where did you go after the meeting?"
+
+"I don't remember, it must not have been important."
+
+"No alibi, last person to see the victim, and an operative of a foreign government, why shouldn't I hold you until Mistubesk?"
+
+Arjay drew irself up, the mirth draining from ir face, "This has truly been a great jape, but it ends now." Ir placed their hand on the table, and rotated it in a complicated series of gestures, fingers splaying, contracting, dancing. Ir lifted irs palm so Ibanez could see, and as ir did so the diplomatic seal of the Hierarch's Foreign Affairs raised on irs skin.
+
+"You know what this means." Ibanez did: diplomatic immunity. "You will let me go, and we'll forget this whole ordeal happened."
+
+"Why waste all this time, my time?"
+
+"I needed to know if you can handle what comes next."
+
+"What does come next, Honored Diplomat?"
+
+"To be completely honest, the specifics elude me, but the broad strokes paint a frightening picture."
+
+Ibanez needed more, and now had no one to hold for this murder.
+
+"Anything you can tell me can help"
+
+Arjay leaned back into irs chair again, and lifted both hands in a shrug. That would be the end of the interrogations for Ibanez, at least today.
