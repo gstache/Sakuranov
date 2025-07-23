@@ -53,7 +53,7 @@ Emmit let themselves remember those forearms wrapped around their waist, pinning
 
 "Where and when, *sir*"
 
-"Very funny: Bar Rovesnik, twenty-thirty, be their or be a coward"
+"Very funny: the 'Rovesnik Room', twenty-thirty, be their or be a coward"
 
 "Aye aye" Emmit mock saluted with their drink and watched Troye walk away toward the changing rooms and the midway surrounding the bio-dome.
 
