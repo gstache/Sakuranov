@@ -15,10 +15,26 @@ Troye bowed in return, "I am corrected. Let me introduce my compatriots from the
 
 "Huzzah, more spirits!" bellowed Many Scars as a new bottle was delivered to their table, "You sure they actually made you a Lieutenant? Old Walnuts would never order bottle service" Troye clapped them on the shoulder "Good thing I'm not old walnuts!" and Many Scars fell off their seat in a spasm of guffaws to an eye-roll from One Scar.
 
-"I think we "
+"I think we should decamp to the dance floor, lieutenant," recommended Blue Eyes as the dj transitioned to a new track, "An astute tactical assessment, so ordered, but not until we toast Rasky" They poured six glasses of the clear spirit from the new bottle and raised theirs high, "May you have Emmit Raskido's steel, their courage, and their hide, and never face them from the other side!" 
 
-- the group toasts and dances. They are in the groove
-- Troye pulls Raskido aside to have a heart to heart about the changes they've both undergone (specifically Emmit and their body and plans)
+"Here here! To my hide!" Emmit joined, flush as a salmon in the spawning stream with the warm camaraderie of the moment. As they all downed their shots, Emmit noticed One Scar's eyes never left theirs; was this an intimidation game? Their speculation was cut short as the rest of the crew enthusiastically took the floor, following Two Rings who announced "This is my favorite beatsmith" while pumping their fist almost on the beat. Emmit needed no further encouragement: the day had been long and they hoped the liquor and groove would wash away the deepening unease that their big gamble on a new life would come up empty. 
+
+---
+
+Tavka did not have time to feel sorrier for themselves as they left the security offices in the ship's bowels because Anastasia was waiting for them. Why this person wanted more time with them was a mystery, one Tavka was uninterested in solving and hoped to avoid if they were being honest with themselves. Unfortunately, that was not possible as the academic grabbed their arm with a surprisingly firm grip and pulled them to the side of the midway out of the flow of passenger traffic.
+
+"I would like to apologize for how I spoke to you last night, I was very dismissive, the sort of attitude that people expect from academics in their jade palaces" Tavka was silent; their well conditioned instinct to deference and politeness having been completely depleted by the interrogation. After an awkward moment, Anastasia continued, "I would like to, possibly, if you wouldn't be offended" they batted their eyes and paused as though momentarily shaken then asked "would you join me tomorrow evening for some dancing?"
+
+Dancing? Tavka loved to dance, but hated to be seen dancing, a paradox that prevented fun more than once. They also reflexively declined invitations because they found most gatherings dull, embarrassing, or in the most recent iteration, a gateway to detention. "I appreciate the apology" they began, then paused to look at Anastasia's hand which still gripped their arm. The hand was removed, gently, and it smoothed the spot it had wrinkled Tavka's shirt. "However, I must decline your invitation"
+
+Anastasia's expression fell and they sighed deeply. Tavka was also easily swayed by the disappointment of others, mostly to their detriment, so they offered a plausible explanation "I'm just very tired, and I don't know if I will have the energy tomorrow"
+
+Anastasia lit up, and said "I understand completely", touching Tavka's shoulder gently, "If you feel up to it, Club Tropez in the tropical mezzanine, tomorrow night. Dj Chuso is staging a takeover, and I find them marvelous" Tavka had no idea who that was, and offered a perfectly noncommittal "Thank you, I'll be there if I feel more myself" This elicited a playful slug to the same shoulder, and Tavka made haste to escape. Their stomach growled, and realizing they hadn't eaten since before climbing this morning, they set a course to the automat for some noodles and tea.
+
+---
+
+
+ - Troye pulls Raskido aside to have a heart to heart about the changes they've both undergone (specifically Emmit and their body and plans)
 - they return to partying (toast, dance, toast, dance)
 - Troye puts the moves on Emmit on the dance floor, they have *chemistry* and then kiss
 - Emmit has A BAD TIME: They taste different, they seem taller, everything is wrong
