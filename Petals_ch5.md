@@ -11,11 +11,11 @@ Emmit saluted playfully and corrected Troye "I retired as the Master Sargent of 
 
 Troye bowed in return, "I am corrected. Let me introduce my compatriots from the Blyvsanto First Army-" They did an admirable job introducing their former fellows, but Emmit was beginning to feel the heat from the drink they stole and could not remember a single name. Distinguishing one from the other was also a challenge because they were all still augmented for combat. Gender had been carved from Eienvechni society with the initial Great Unification thousands of years ago, but differences in genes, primary and secondary sex characteristics, and environments produced a colorful tapestry of peoples, even if they tended towards androgyny in presentation because it was currently fashionable. The pallet of Troye's compatriots was best described as two tone- "large" and "slightly larger". They were all nearly the same height, with the same short shorn hair, and wearing simple grey clothes with minor differences in trim, the only differences were in skin, eye and embellishment. Emmit settled on a classification system of "blue eyes", "two rings", "one scar" and "many scars". 
 
-"Blue eyes" was most likely female-type, Emmit assessed. The treatments all frontline infantry underwent to increase their strength and reflexes produced masculine characteristics while active, but Emmit could see a softness at the edges that only a fellow augmentee would notice. The others were harder to tell, and then immediately disavowed the thought: guessing at the primary sex of others was taboo. Two rings had two golden rings on their fourth finger of their right hand, complementing their deep brown skin. One Scar was unusually pale, and sullen. Many Scars was a reasonable amount of pale, and nearly fell over when they laughed. They were all trained killers, and like Troye they were working privately for an secret client. Emmit would not be intimidated, but they felt vulnerable around them which would not have been true a year or two ago when they were likewise augmented.
+"Blue eyes" was most likely female-type, Emmit assessed. The treatments all frontline infantry underwent to increase their strength and reflexes produced masculine characteristics while active, but Emmit could see a softness at the edges that only a fellow augmentee would notice. They immediately disavowed the thought: guessing at the primary sex of others was taboo. Two rings had two golden rings on their fourth finger of their right hand, complementing their deep brown skin. One Scar was unusually pale, and sullen. Many Scars was a reasonable amount of pale, and nearly fell over when they laughed. They were all trained killers, and like Troye they were working privately for an secret client. Emmit would not be intimidated, but they felt vulnerable around them which would not have been true a year or two ago when they were likewise augmented.
 
 "Huzzah, more spirits!" bellowed Many Scars as a new bottle was delivered to their table, "You sure they actually made you a Lieutenant? Old Walnuts would never order bottle service" Troye clapped them on the shoulder "Good thing I'm not old walnuts!" and Many Scars fell off their seat in a spasm of guffaws to an eye-roll from One Scar.
 
-"I think we should decamp to the dance floor, lieutenant," recommended Blue Eyes as the dj transitioned to a new track, "An astute tactical assessment, so ordered, but not until we toast Rasky" They poured six glasses of the clear spirit from the new bottle and raised theirs high, "May you have Emmit Raskido's steel, their courage, and their hide, and never face them from the other side!" 
+"I think we should decamp to the dance floor, lieutenant," recommended Blue Eyes as the dj transitioned to a new track. "An astute tactical assessment, so ordered, but not until we toast Rasky" Troye proclaimed. They poured six glasses of the clear spirit from the new bottle and raised theirs high, "May you have Emmit Raskido's steel, their courage, and their hide, and never face them from the other side!" 
 
 "Here here! To my hide!" Emmit joined, flush as a salmon in the spawning stream with the warm camaraderie of the moment. As they all downed their shots, Emmit noticed One Scar's eyes never left theirs; was this an intimidation game? Their speculation was cut short as the rest of the crew enthusiastically took the floor, following Two Rings who announced "This is my favorite beatsmith" while pumping their fist almost on the beat. Emmit needed no further encouragement: the day had been long and they hoped the liquor and groove would wash away the deepening unease that their big gamble on a new life would come up empty. 
 
@@ -33,12 +33,48 @@ Anastasia lit up, and said "I understand completely", touching Tavka's shoulder 
 
 ---
 
+Emmit dropped onto the cushion of their booth, exuberant and winded. They shuffled through the drinks on the table, taking a few guesses as to which might be water, and guessing wrong twice. They let their head flop back onto the seatback, which made Blue Eyes appear to come from inside the wall and scare a burp from Emmit.
 
- - Troye pulls Raskido aside to have a heart to heart about the changes they've both undergone (specifically Emmit and their body and plans)
-- they return to partying (toast, dance, toast, dance)
-- Troye puts the moves on Emmit on the dance floor, they have *chemistry* and then kiss
-- Emmit has A BAD TIME: They taste different, they seem taller, everything is wrong
-- They break off the kiss, Emmit goes to the table to get another shot 
-- the gang is already there
-- this time one scar toasts Fujschev 
-- Emmit is stunned and drunk, and when Troye joins in, Emmit sneaks away, tears and stumbles.
+"Woah, you are, very close" said Emmit with what they thought was just the smallest drunken lilt, while they sat up and moved over a hair. Blue Eyes was barely a foot from their face, but they could barely hear them over the music as they said "You're so brave"
+
+*Oh no* Emmit thought to themselves; they were about to be pinned by an earnest conversation about the detransition from the service. They didn't hate the conversation, but it was always the same questions with the same answers. Did it hurt? Yes, incredibly. Do you still have your parts? Yes, they don't take those away. Do you regret it? Not once. Or at least, not until today.
+
+"Did it hurt? When you were withdrawing from the enhancers?" Blue Eyes' blue eyes stared wetly at Emmit; clearly this was weighing heavily on their heart.
+
+"It was the second most painful experience of my life" Said Emmit, honestly. Hoping that was a satisfactory answer, they hopped up and made arrangements to snag some additional shots from a server. The tug on their dress said otherwise: 
+
+"Were you like this before?" Blue Eyes asked, eyebrows arched in concern, then continued with the quiet conspiracy of sisterhood, "You're *pretty*"
+
+*Pretty* is not an Eienvechni word, there is not a gendered word for beautiful. *Pretty* is an Anzhalt word, all sharp edges and rolling r's. Emmit Gently grasped Blue Eye's hand and carefully returned it to it's owner. Then they slowly turned to find an exit, scanning for a sign, when they saw Troye emerge from the dancing crowd. They made two gestures which Emmit roughly translated to "Let's Talk" and a third for "over there", pointing to an empty alcove far from the roiling mass. Emmit made their escape to the relative quiet of the alcove.
+
+They both leaned against the wall, facing each other and close enough that neither had to yell over the music. They hadn't been this close together since Lanterra all those years ago. "You were always braver than me, Rasky" said Troye. "I was going to ask why you were still on the sauce" Emmit replied, teasingly. "I don't think I can let the life go, once a soldier always a soldier, or something like that." Troye answered, wryly.
+
+"Bullshit" punctuated with a play shove "You're just scared of withdrawals, like a soft little baby."
+Troye grinned sheepishly and chuckled "You understand me too well. I've seen dozens go through them, and it looks agonizing every time; so yes, I found employment to forestall the transition."
+
+"Who has this kind of money to spend on private Praetorians?" Emmit asked, half in jest, half serious.
+
+Troye's face became a fraction more serious, "There are so many people of exceptional wealth who imagine themselves to be Vassals of the Hierarch, or lesser sons playing at Daimyo with living toy soldiers. The pay is excellent, though, and the accommodations certainly beat riding cargo" They gestured to the general vicinity. Before Emmit could ask who, Troye continued:
+
+"When did you leave service?"
+
+"Two years ago, I made Master, and that's as far as I wanted to go."
+
+"That's the same time I did, same 7 year contract"
+
+"Why are we talking about this? I'm too drunk to be bored."
+
+"I honestly don't know, it's a force of habit."
+
+"I think it's silly, and I'm more interested in seeing if you've still got the moves, Lieutenant"
+
+"Well, I hope so! Maybe you've actually picked some up now that you're a little lighter on your feet" Troye paused and locked eyes with Emmit, "You look great, it really suits you" and they made their way back to the floor.
+
+Emmit was not a good dancer, but they made up for it with enthusiasm. They weren't on beat but they were moving arms, legs, hips and head exuberantly. Troye could have been a human metronome, moves tight, timely, and smooth. The pair would playfully collide and separate for a few songs, but intimate connection is a form of gravity, and their paths became shrinking, concentric orbits. Emmit waved their hands over their head and swayed their hips from side to side until they found Troye's pelvis. Troye's hands traced their arms, their back and pulled their hips close, hot breath on the nape of Emmit's neck. Emmit reached back, grabbed the back of Troye's head and pulled them closer, driving their hips back to feel the beginnings of Troye's erection. Satisfaction raised their own as Troye guided their bodies back to the beat, until the tension was unbearable and they spun Emmit around to face them. Emmit grabbed Troye's head with both hands and kissed them deeply. They needed this, had wanted this, for longer than they cared to admit. They pulled back, waiting for Troye to reciprocate, which they obliged with enthusiasm. It felt right, the two of them together after these years, it brought Emmit back to those strange, horrifying, beautiful years fighting side by side. The memories were so strong that Emmit began to notice the differences between then and now. Troye was several inches taller than them now, they had to reach up to them. Troye tasted different. Emmit realized with horror that Troye hadn't changed at all, but they had. They weren't who they used to be, and they couldn't be that person again. Their gorge rose and they pulled away sharply from Troye.
+
+"I'm sorry"
+
+They ran for the exit, and vomited.
+
+---
+
